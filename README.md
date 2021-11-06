@@ -1,2 +1,2 @@
 # GAME-TV
-Game tv. In. Com
+Gametv.In.Com
